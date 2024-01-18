@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @beniefrancisca
-- 👀 I’m interested in data analytics but oepn to more fields
+- 👀 I’m interested in data analytics but open to more fields
 - 🌱 I’m currently learning Business Analyst and refreshing my python skills
 - 💞️ I’m looking to collaborate on projects that are insightful to the workplace and new opportunites
 - 📫 How to reach me via email beniefrancisca@gmail.com or just search my name in LinkedIn
